@@ -9,4 +9,5 @@ meu nome é Beatriz
 -  ### você entrar em contato comigo 📧
 
 - beatriztojal8@gmail.com
-![]()https://media1.tenor.com/m/yb92qkep0cMAAAAC/moa-kikuchi-moametal.gif
+- 
+- ![]()https://media1.tenor.com/m/yb92qkep0cMAAAAC/moa-kikuchi-moametal.gif
